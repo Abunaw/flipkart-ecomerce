@@ -3,6 +3,9 @@ list of breakfast
 -Bread
 -Milk
 -Eggs
--Cake
--Ice cream
+-fufu eru
+rice stew
+dole plantain
+
+some african food to our guest
 
